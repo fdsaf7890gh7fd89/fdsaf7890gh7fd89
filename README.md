@@ -1,6 +1,6 @@
 ## 最新網址
 
-[請點我](https://avple.app)
+[請點我](https://madoufree.com)
 
 
 ## 發佈頁面
